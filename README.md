@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...coding
 - 🌱 I’m currently learning ...java
 - 💞️ I’m looking to collaborate on ... pro devoloper only
-- 📫 How to reach me ... millna tu telegram pa aana username na dena ka aana tu s kar lena @naruto_of_telegam
+- 📫 How to reach me ... millna tu telegram pa aana username na dena ka aana tu s kar lena @sojabro_of_telegam
 - 😄 Pronouns: ... na pata
 - ⚡ Fun fact: ... kuch na
 
